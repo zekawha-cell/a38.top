@@ -1,0 +1,2 @@
+# a38.top
+a38.top平台提供谷歌Gmail邮箱账号自助购买,微软Outlook邮箱账号购买,Twitter推特账号购买,脸书Facebook账号购买,Instagram账号购买,Youtube油管账号购买，Apple萍果ID账号购买，Telegram电报账号购买，Tiktok账号购买,谷歌账号购买批发出售的分享交易平台,24小时自动发货,原生IP注册申请,高质量直登免验证独享稳定好用,工作室自产自销密码安全
